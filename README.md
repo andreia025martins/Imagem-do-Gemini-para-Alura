@@ -1,0 +1,1 @@
+# Imagem-do-Gemini-para-Alura
